@@ -6,6 +6,6 @@ Me chamo Henrique, vulgo Titi, sou aluno do primeiro ano do TecPuc;
 
 Faço curso técnico na área de informática; 
 
-Gosto de jogar Valorant, Minecraft e Rocket League; 
+Gosto de jogar Valorant, Overwatch, Minecraft e Rocket League; 
 
 Prazer em te Conhecer:smile: 
