@@ -2,7 +2,7 @@
 ---
 Olá :hand: 
 
-Me chamo Henrique, vulgo Titi, sou aluno do primeiro ano do TecPuc; 
+Me chamo Henrique, vulgo Titi, sou aluno do segundo ano do TecPuc; 
 
 Faço curso técnico na área de informática; 
 
